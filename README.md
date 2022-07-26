@@ -1,4 +1,5 @@
 ### Hi there 👋
+Experienced in Marketing, Finance, and Investment for more than ten years. Enthusiastic about building on my knowledge to become a web developer with the belief that this career can improve online sales for businesses while also making consumers' lives easier.
 
 <!--
 **poomhan/poomhan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
